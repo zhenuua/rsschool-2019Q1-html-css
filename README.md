@@ -1,1 +1,1 @@
-rsschool-2019Q1-codeacademy
+[Yauheni Zakharenka](HTML CSS Basics: https://www.codecademy.com/users/sergey.shalyapin/achievements)
